@@ -47,4 +47,4 @@ Did you know that the show’s title, *Stranger Things*, is a reference to the c
 ---
 
 ### **Why I Love It**  
-"Stranger Things" blends the nostalgia of the '80s with a compelling supernatural mystery, exceptional performances from its cast, and heart-pounding suspense. The show's strong emotional core, featuring themes of friendship, loyalty, and family, makes it more than just a sci-fi thriller—it's a touching story about growing up and facing your fears.
+"Stranger Things" blends the nostalgia of the '80s with a compelling supernatural mystery, exceptional performances from its cast, and heart-pounding suspense. The show's strong emotional core, featuring themes of friendship, loyalty, and family, makes it more than just a sci-fi thriller it's a touching story about growing up and facing your fears.
